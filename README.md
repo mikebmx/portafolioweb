@@ -1,2 +1,0 @@
-# portafolioweb
-mi portafolioweb profesional
